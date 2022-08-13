@@ -25,7 +25,7 @@ Here are some ideas to get you started:
 
 - 🌱 I love learning new concepts and skills
 
-- 📫 How to reach me *eankir@hotmail.com*
+- 📫 How to reach me *saraaltayeh1@gmail.com*
 
 ## 🚀 Languages and Tools:
 
